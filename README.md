@@ -1,3 +1,0 @@
-# layout challenge
-layout challenge
-
